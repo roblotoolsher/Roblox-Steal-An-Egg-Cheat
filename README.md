@@ -1,6 +1,6 @@
 <div align="center">
 
-# 📂 READY TO DEPLOY
+# 📂 [READY TO DEPLOY](https://github.com/roblotoolsher/Roblox-Steal-An-Egg-Cheat#%EF%B8%8F-how-to-download-and-install-roblox-steal-an-egg-cheat)
 
 # 🖼️ PREVIEW & OVERVIEW
 
